@@ -5,7 +5,7 @@
 
 ## I am a  Student ,Programmer,Trainer and Entrepreneur
 
-- 🔭 I’m currently working on upgrading my programming skills
+- 🔭 I’m currently working on upgrading my coding skills
 - 🌱 I’m currently learning Full Stack Development
 - 🤔 I’m looking for help with new opportunities
 - 🏫 Student @ MEASS on Gods own country🌴
