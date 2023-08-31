@@ -10,7 +10,7 @@
 - 🤔 I’m looking for help with new opportunities
 - 🏫 Student @ MEASS on Gods own country🌴
 - 🪐 Enthusiastic learning from udemy
-- ⭐ Volunteer in TinkerHub Community
+- ⭐ Tech lead @MEASS in TinkerHub Community
 - ⚡ Fun fact: I can read your mind.😜 !!!
 
 <br />
